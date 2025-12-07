@@ -32,8 +32,8 @@ Busco evoluir na área de desenvolvimento e me tornar um profissional completo.
 ---
 
 ## 📫 Como falar comigo
--Instagram: gabriel.zwx3
--E-Mail: gabrielcavalcanteffroyale@gmail.com
+- Instagram: gabriel.zwx3
+- E-Mail: gabrielcavalcanteffroyale@gmail.com
 
 ---
 
